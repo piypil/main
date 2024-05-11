@@ -1,2 +1,2 @@
 
-![piypilTe](https://github.com/piypil/piypil/assets/76488689/df8b9e66-1575-443b-bf2c-c3a58c734527)
+![piypil](https://github.com/piypil/piypil/assets/76488689/5a62b2ce-15a7-4ace-9484-24901974232a)
